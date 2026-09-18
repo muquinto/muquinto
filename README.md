@@ -1,4 +1,4 @@
 # Hi 👋, Im Murillo Quinto
 
-🚀 **Júnior Systems Analyst
+🚀 Júnior Systems Analyst
 Brazil
